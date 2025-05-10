@@ -38,9 +38,9 @@
 
 ### 📫 How to reach me
 
-- 📧 Email: your.email@example.com  
-- 💼 [LinkedIn](https://linkedin.com/in/yourprofile)  
-- 🌐 [Portfolio Website](https://yourwebsite.dev)
+- 📧 Email: harshujimaha9977@gmail.com  
+- 💼 [LinkedIn](http://linkedin.com/in/harshal-mahajan-07114b333)  
+
 
 ---
 
